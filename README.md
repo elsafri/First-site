@@ -20,4 +20,4 @@ _______
 * ## **Домашние животные:**
   _Два корги кардигкана: Блэк(чёрно-белый, 4 года) и Деккард (тигровый, 2 года)_
 
-  ![]()
+  ![](https://sun9-31.userapi.com/impg/BFTrs2AjOws6RbBv1sCMsQKw3aqb55YzrPiANA/vUM8jZTjK0U.jpg?size=1280x1280&quality=95&sign=f7d050c0008d3798486f8918e860b54c&type=album)
