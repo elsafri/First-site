@@ -23,4 +23,4 @@ _______
   ![](https://sun9-31.userapi.com/impg/BFTrs2AjOws6RbBv1sCMsQKw3aqb55YzrPiANA/vUM8jZTjK0U.jpg?size=1280x1280&quality=95&sign=f7d050c0008d3798486f8918e860b54c&type=album)
 
   
-  ![](photo_2022-10-26_08-56-05.jpg)
+  ![](images\images/photo_2022-10-26_08-56-05.jpg)
